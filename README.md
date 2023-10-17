@@ -1,4 +1,4 @@
-### Hi there 👋
+My name is Suryansh Pandey. I am from Siswa Bazar MAharajganj Uttar Pradesh. Currently I am pursuing my Btech in CSE from ABES Engineering College Ghaziabad. I am very passionate boy with curiosity to learn new things.
 
 <!--
 **Suryansh4654/Suryansh4654** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
